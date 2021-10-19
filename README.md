@@ -7,7 +7,7 @@
 - 💬 Ask me about ... whatever you wanna ask
 - 📫 How to reach me: ...🤔
 - 😄 Pronouns: she / her / sweetie
-- ⚡ Fun fact:  HALLOWEEN's comming up....And I'm soon gonna be 14 !!
+- ⚡ Fun fact:  HALLOWEEN's comming up....And Today's my birthday !!
 
 
 ![octo](https://user-images.githubusercontent.com/74972696/133542753-d98e5385-fab1-4f1e-a4b1-983208f2154c.gif)
