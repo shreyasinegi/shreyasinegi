@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on ... Any project I can fit in
 - 🤔 I’m looking for ... help with new inspiring ideas
 - 💬 Ask me about ... whatever you wanna ask
-- 📫 How to reach me: ...🤔
+- 📫 How to reach me: ...my snap is shira5020
 - 😄 Pronouns: she / her / sweetie
 - ⚡ Fun fact:  HALLOWEEN's comming up...
 
