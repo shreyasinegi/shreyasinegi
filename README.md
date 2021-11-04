@@ -7,7 +7,7 @@
 - 💬 Ask me about ... whatever you wanna ask
 - 📫 How to reach me: ...my snap is shira5020
 - 😄 Pronouns: she / her / sweetie
-- ⚡ Fun fact:  HALLOWEEN's comming up...
+- ⚡ Fun fact:  Mars constantly makes a humming noise...
 - and wait, if you're wondering who are those on my profile they are "Karl and Corpse"
 
 
