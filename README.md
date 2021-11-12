@@ -1,5 +1,5 @@
 ### Hi :) How's it going?  👋
-   ### I'm Shreyasi or you can just go with Shira I legit love MineCraft !!
+   ### I'm Shreyasi or you can just go with Shira 
 - 🔭 I’m currently working on... VS
 - 🌱 I’m currently in... my first year of high school 
 - 👯 I’m looking to collaborate on ... Any project I can fit in
