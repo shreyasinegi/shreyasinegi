@@ -8,7 +8,7 @@
 - 📫 How to reach me: ...my snap is shira5020
 - 😄 Pronouns: she / her / sweetie
 - ⚡ Fun fact:  Mars constantly makes a humming noise...
-- and wait, if you're wondering who are those on my profile they are "Karl and Corpse"
+- and wait, if you're already here you don't you follow
 
 
 ![octo](https://user-images.githubusercontent.com/74972696/133542753-d98e5385-fab1-4f1e-a4b1-983208f2154c.gif)
